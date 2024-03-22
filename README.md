@@ -45,3 +45,5 @@ Syair Jawa seperti "Sifat Guru Ingkang Berkah" tidak hanya sekadar rangkaian kat
 
 Link Syair Sifate Guru Ingkang Berkah Gandrung Nabi Klik Gambar
 <a href="https://yogikhayan.id/lirik-sholawat/lirik-sifate-guru-ingkang-berkah/"><img src="https://yogikhayan.id/wp-content/uploads/2024/03/Lirik-Sholawat-SIfate-Guru-Ingkang-Berkah-Lirik-Arti-1-1536x870.png" /></a>
+
+Klik Untuk Memperbesar
